@@ -44,3 +44,21 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
   - Applied Sciences as a bridge between school-level learning and core engineering subjects
 
 
+#### 3. *Dr. Akshay Girdhar*  
+
+*Topic:* Life Beyond Engineering  
+ - Importance of extracurriculars
+ - "Join 1 technical club + 1 cultural society
+ -  Shared his journey from GNDEC to industry leader
+ - Robotics Society
+ - Explained the importance of Hackathons and coding competitions
+
+
+#### 4. *Harleen Kaur* 
+
+ *Topic:* Mindset and Purpose
+   - Conducted an interactive mindset workshop  
+   - "Success = (Knowledge + Skills) × Attitude"  
+   - Guided meditation exercise for stress management
+   - Stay aligned with your goals — the universe supports those with purpose  
+
