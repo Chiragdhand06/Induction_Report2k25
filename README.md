@@ -1,4 +1,4 @@
-# GNDEC Ludhiana - CSE Induction Program 2025 Report
+# GNDEC Ludhiana - Induction Program 2025 Report
 
 ![GNDEC Logo](https://www.gndec.ac.in/sites/default/files/logo.png)  
 (Report submitted by: Chirag Dhand)
@@ -14,7 +14,7 @@
 
 ---
 
-## 📅 Day 1: July 30, 2025
+## 📅 Day 1: July 31, 2025
 
 ### ☀ Morning Session (8:30-9:30 AM)
 *Gurudwara Sahib Visit*  
@@ -60,5 +60,21 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
    - Conducted an interactive mindset workshop  
    - "Success = (Knowledge + Skills) × Attitude"  
    - Guided meditation exercise for stress management
-   - Stay aligned with your goals — the universe supports those with purpose  
+   - Stay aligned with your goals — the universe supports those with purpose
 
+
+#### 5. *Dr. Shehejpal (Principal)*  
+
+*Topic:* Engineering's Role in Society  
+  - Engineers as builders of society
+  - Revealed industry partnership statistics  
+  - "IT/CS graduates get placed in core tech roles"  
+  - Emphasized the importance of summer internships
+
+
+#### 6. *Sri Ravinder Garg (Chief Engineer, Municipal Office)*  
+ 
+ *Topic:* Personal Discipline 
+  - Work hard consistently throughout college  
+  - Pray daily for mental and spiritual clarity
+  - 
