@@ -24,6 +24,8 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 *Venue:* College Auditorium  
 *Host:* Harsimran Ma'am  
 
+---
+
 ### Key Sessions Summary:
 
 #### 1. *Dr. Harsimran Singh Jaggi*  
@@ -35,6 +37,7 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
    - Overview of campus life and available facilities
    - Warning: "Don't limit yourself to classroom learning"
 
+---
 
 #### 2. *Dr. Harpreet Kaur*  
 
@@ -43,6 +46,7 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
   - "Your first year builds the foundation for specialized learning"
   - Applied Sciences as a bridge between school-level learning and core engineering subjects
 
+---
 
 #### 3. *Dr. Akshay Girdhar*  
 
@@ -53,6 +57,7 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
  - Robotics Society
  - Explained the importance of Hackathons and coding competitions
 
+---
 
 #### 4. *Harleen Kaur* 
 
@@ -62,6 +67,7 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
    - Guided meditation exercise for stress management
    - Stay aligned with your goals — the universe supports those with purpose
 
+---
 
 #### 5. *Dr. Shehejpal (Principal)*  
 
@@ -71,6 +77,7 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
   - "IT/CS graduates get placed in core tech roles"  
   - Emphasized the importance of summer internships
 
+---
 
 #### 6. *Sri Ravinder Garg (Chief Engineer, Municipal Office)*  
  
@@ -79,6 +86,7 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
   - Pray daily for mental and spiritual clarity
   - Demonstrated time management
 
+---
 
 #### 7. *Dr. Kulwinder Singh Maan (HoD, IT)*
 
@@ -87,3 +95,39 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
   - Broke down core Subject similarities
   - Explained common opportunities in CS and IT
   - Both offer equal opportunities if pursued sincerely
+
+---
+
+#### 8. *Ashok Singhla Sir (Financial Advisor)*  
+
+*Topic:* Financial Management   
+ - Information about educational loans  
+ - Budgeting wisely during student life
+
+*Public Sector Banks (SBI, PNB, etc.):*
+- ✅ Lower interest rates (8.5-10.5% p.a.)
+- ✅ Longer moratorium period (6-12 months after course completion)
+- ✅ Collateral required only for loans > ₹7.5 lakhs
+- ✅ Processing fee: 0.5-1% of loan amount
+- Example: SBI Scholar Loan offers up to ₹1.5 crore for overseas studies
+
+*Private Banks (HDFC, ICICI, Axis):*
+- ✅ Faster processing (3-5 working days)
+- ✅ Higher loan amounts (up to ₹2 crore)
+- ✅ Flexible repayment options (up to 15 years)
+- ❌ Higher interest rates (10-14% p.a.)
+
+  ---
+
+#### 9. *Mr. Kesh Kumar (Deputy Commissioner)*  
+
+*Topic:* Aim for Excellence  
+ - Whatever your field is, rise to the top in it
+ - Demonstrated goal-setting framework
+ - Develop a unique approach that becomes your trademark
+   
+
+- Example: HDFC Credila offers customized repayment plans
+
+---
+ 
