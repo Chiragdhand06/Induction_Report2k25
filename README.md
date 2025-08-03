@@ -77,4 +77,13 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
  *Topic:* Personal Discipline 
   - Work hard consistently throughout college  
   - Pray daily for mental and spiritual clarity
-  - 
+  - Demonstrated time management
+
+
+#### 7. *Dr. Kulwinder Singh Maan (HoD, IT)*
+
+ *Topic:* CS vs IT – Clarification  
+  - No need to differentiate between CS and IT
+  - Broke down core Subject similarities
+  - Explained common opportunities in CS and IT
+  - Both offer equal opportunities if pursued sincerely
