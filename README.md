@@ -149,3 +149,20 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
    | Dr. Rajesh Kumar   | AI/ML                   |
    | Dr. Priya Sharma   | Cybersecurity           | 
    | Prof. Amit Singh   | Cloud Computing         |
+
+---
+
+## 📅 Day 2: August 1, 2025
+
+### ☀ Morning Session (9:30-11:30 AM)
+1. *9:30-10:30* English proficiency test
+   
+2. *10:30-11:30* Math's Proficiency test
+
+---
+#### "11:30-1:00"  
+- Lunch Break is given to students so they can relax and enjoy their time with new friends
+
+---
+
+###
