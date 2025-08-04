@@ -144,8 +144,8 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 
 3. *Faculty Introduction*
 
-   | Professor          | Specialization          | GitHub Handle       |
-   |--------------------|-------------------------|---------------------|
-   | Dr. Rajesh Kumar   | AI/ML                   | @rajesh-it        |
-   | Dr. Priya Sharma   | Cybersecurity           | @priyacsec        |
-   | Prof. Amit Singh   | Cloud Computing         | @amitcloud        |
+   | Professor          | Specialization          | 
+   |--------------------|-------------------------|
+   | Dr. Rajesh Kumar   | AI/ML                   |
+   | Dr. Priya Sharma   | Cybersecurity           | 
+   | Prof. Amit Singh   | Cloud Computing         |
