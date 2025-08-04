@@ -131,8 +131,13 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 ---
 
 ## 🎯 Session Highlights:
+
 1. *Group Allocation System*
    - Formed 8 mentor groups (15 students each)
    - Assigned senior student coordinators
 
- 
+ 2. *Interactive Q&A Session*
+    - Clarified myths about:
+     - "Only coding matters in IT"
+     - "Theory subjects aren't important"
+   - Discussed project submission timelines
