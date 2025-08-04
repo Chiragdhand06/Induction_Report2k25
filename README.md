@@ -112,12 +112,14 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 - Example: SBI Scholar Loan offers up to ₹1.5 crore for overseas studies
 
 *Private Banks (HDFC, ICICI, Axis):*
-- ✅ Faster processing (3-5 working days)
-- ✅ Higher loan amounts (up to ₹2 crore)
-- ✅ Flexible repayment options (up to 15 years)
-- ❌ Higher interest rates (10-14% p.a.)
+ - ✅ Faster processing (3-5 working days)
+ - ✅ Higher loan amounts (up to ₹2 crore)
+ - ✅ Flexible repayment options (up to 15 years)
+ - ❌ Higher interest rates (10-14% p.a.)
 
-  ---
+ -  Example: HDFC Credila offers customized repayment plans
+
+---
 
 #### 9. *Mr. Kesh Kumar (Deputy Commissioner)*  
 
@@ -125,9 +127,12 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
  - Whatever your field is, rise to the top in it
  - Demonstrated goal-setting framework
  - Develop a unique approach that becomes your trademark
-   
-
-- Example: HDFC Credila offers customized repayment plans
 
 ---
+
+## 🎯 Session Highlights:
+1. *Group Allocation System*
+   - Formed 8 mentor groups (15 students each)
+   - Assigned senior student coordinators
+
  
