@@ -161,6 +161,8 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 
 #### English Proficiency Test
 
+![English Test](https://ibb.co/nMRM1jSg
+https://ibb.co/MyfNJZH7)
 
 #### Mathematics Test 
 
