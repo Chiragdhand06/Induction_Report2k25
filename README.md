@@ -290,3 +290,24 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 - Recall a moment when a desired path closed — how did you respond?  
 
 ---
+
+`# Day 4 Report – 2nd August 2025  
+*Induction Programme*
+
+## 📅 Date
+*Saturday, 2nd August 2025*
+
+## 📝 Overview
+The fourth day of the Induction Programme was designed to:
+- Familiarize students with the *college environment*.
+- - Build *peer relationships* through interactive activities.
+- Support *mental and emotional well-being* via wellness sessions.
+
+---
+
+## 🎯 Activities Conducted
+- *Orientation session* with faculty members.  
+- *Introduction to departments and laboratories*, including key facilities and resources.  
+- *Motivational talk* by expert speakers on goal setting and resilience.  
+- *Team-building activities* to enhance communication, trust, and collaboration.  
+- *Meditation sessions* for relaxation and mental clarity.
