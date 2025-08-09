@@ -157,7 +157,8 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 ## ☀ Morning Session (9:30 AM - 11:30 AM)
 ### 📄 English & Mathematics Proficiency Test 
   
-  - Took English and Mathematics tests to assess current knowledge levels. 
+  - Took English and Mathematics tests to assess current knowledge levels.
+  - Helped in assessing our current knowledge levels and identifying areas for improvement.
 
 #### English Proficiency Test
 
@@ -168,16 +169,16 @@ https://i.postimg.cc/26DZ8qmM/IMG-20250809-173222.jpg)
 
 ![Mathematics Test](https://i.postimg.cc/Mp9PBSX9/IMG-20250809-173138.jpg)
 
-  - Took English and Mathematics tests to assess current knowledge levels. 
 ---
 ## 11:30 AM - 1:00 PM 
 - Lunch Break is given to students so they can relax and enjoy their time with new friends
 
 ---
 
-### 1:00 PM - 2:00 PM
+## 1:00 PM - 2:00 PM
 - *Guest Lecture by Buddy4Study:*
 -  Then the officals from Buddy4Study specifically under the NEHRU SIDHANT KENDAR TRUST inroduced us about the SATYA SCHOLARSHIP PROGRAM 2025
+-  Introduction to Buddy4Study platform.
   - Learned about scholarship opportunities for economically weaker students.  
   - Explored the Buddy4Study platform and its support programs.
   - Explain about "SATYA SCHOLORSHIP PROGRAMME" for children in need.
@@ -185,11 +186,24 @@ https://i.postimg.cc/26DZ8qmM/IMG-20250809-173222.jpg)
 
 ---
 
-### 2:00 PM - 3:00 PM
+## 2:00 PM - 3:00 PM
 *Lecture by Arashdeep Singh:*  
   - Discussed the importance of nutrition in student life.  
   - Highlighted how proper diet affects energy, focus, and productivity.
   - Discussed about allergy related foods.
   - Shared tips for Maintaing a Healthy daily routines.
 
+---
 
+## 💡 Key Takeaways
+- Regular assessment through tests helps track academic progress.
+- Financial aid resources like Buddy4Study can be game-changers for deserving students.
+- Nutrition is not just about food—it’s about fueling the mind and body for better performance.
+- The second half of the day included interactive tutorials, encouraging team spirit and creative thinking.
+
+---
+
+## 🚀 Additional Notes
+- The sessions were interactive and engaging, encouraging student participation.
+- We learned the importance of balancing academics with health.
+- Day 2 ended with a clear action plan to apply our learnings in daily life.
