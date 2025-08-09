@@ -291,7 +291,7 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 
 ---
 
-`# Day 4 Report – 2nd August 2025  
+`# Day 4 Report – 4 August, 2025  
 *Induction Programme*
 
 ## 📅 Date
