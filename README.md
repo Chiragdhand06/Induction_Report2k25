@@ -154,15 +154,37 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 
 ## 📅 Day 2: August 1, 2025
 
-### ☀ Morning Session (9:30-11:30 AM)
-1. *9:30-10:30* English proficiency test
-   
-2. *10:30-11:30* Math's Proficiency test
+## ☀ Morning Session (9:30 AM - 11:30 AM)
+### 📄 English & Mathematics Proficiency Test 
 
+#### Mathematics Test (Morning Session)
+![Mathematics Proficiency Test](maths-test.jpg)
+
+#### English Proficiency Test
+![English Proficiency Test](english-test.jpg)
+
+  - Took English and Mathematics tests to assess current knowledge levels. 
 ---
-### 11:30 AM - 1:00 PM 
+## 11:30 AM - 1:00 PM 
 - Lunch Break is given to students so they can relax and enjoy their time with new friends
 
 ---
 
-###
+### 1:00 PM - 2:00 PM
+- *Guest Lecture by Buddy4Study:*
+-  Then the officals from Buddy4Study specifically under the NEHRU SIDHANT KENDAR TRUST inroduced us about the SATYA SCHOLARSHIP PROGRAM 2025
+  - Learned about scholarship opportunities for economically weaker students.  
+  - Explored the Buddy4Study platform and its support programs.
+  - Explain about "SATYA SCHOLORSHIP PROGRAMME" for children in need.
+  - Understood the process of applying for scholorships effectively.
+
+---
+
+### 2:00 PM - 3:00 PM
+*Lecture by Arashdeep Singh:*  
+  - Discussed the importance of nutrition in student life.  
+  - Highlighted how proper diet affects energy, focus, and productivity.
+  - Discussed about allergy related foods.
+  - Shared tips for Maintaing a Healthy daily routines.
+
+
