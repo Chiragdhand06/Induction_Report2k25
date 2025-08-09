@@ -156,12 +156,13 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 
 ## ☀ Morning Session (9:30 AM - 11:30 AM)
 ### 📄 English & Mathematics Proficiency Test 
-
-#### Mathematics Test (Morning Session)
-![Mathematics Proficiency Test](maths-test.jpg)
+  
+  - Took English and Mathematics tests to assess current knowledge levels. 
 
 #### English Proficiency Test
-![English Proficiency Test](english-test.jpg)
+
+
+#### Mathematics Test 
 
   - Took English and Mathematics tests to assess current knowledge levels. 
 ---
