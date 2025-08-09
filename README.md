@@ -166,7 +166,7 @@ https://ibb.co/MyfNJZH7)
 
 #### Mathematics Test 
 
-![Mathematics Test ](https://ibb.co/LdFDnPH4)
+![Mathematics Test](https://i.postimg.cc/Mp9PBSX9/IMG-20250809-173138.jpg)
 
   - Took English and Mathematics tests to assess current knowledge levels. 
 ---
