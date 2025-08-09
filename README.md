@@ -207,3 +207,86 @@ https://i.postimg.cc/26DZ8qmM/IMG-20250809-173222.jpg)
 - The sessions were interactive and engaging, encouraging student participation.
 - We learned the importance of balancing academics with health.
 - Day 2 ended with a clear action plan to apply our learnings in daily life.
+
+---
+
+# Day 3 Report – Inspiration through Experience
+
+## 📅 Date & Time
+*Saturday* – 9:00 AM onwards
+
+## 📝 Activities & Sessions
+
+### ⿡ Lecture 1: Learning Science & Math Experimentally  
+*Speaker:* Dr. Jaswinder Singh “JaswinS”  
+
+#### 🎤 About the Speaker
+- National & State Awardee  
+- Honoured by the President of India  
+- Popular Science Educator, Govt. of India  
+- Recipient of Multi Gyan Peth & Asian Excellence Award  
+- Known for blending *scientific curiosity with creativity and spirituality*  
+
+#### 📌 Session Highlights
+- Demonstrated how *science and mathematics* can be learned through engaging experiments.
+- Emphasized *discipline and curiosity* as key drivers of true learning.
+- Shared personal stories that inspired students to connect academic knowledge with real-life applications.
+- Left the audience thinking:  
+  > "When learning becomes an experience, it never leaves you."
+
+---
+
+### ⿢ Lecture 2: Universal Human Values  
+*Speaker:* Priya Ma’am  
+
+#### 🧠 Core Theme  
+- Aligning one’s life with the *Basic Aspiration: Continuous **happiness and prosperity*.  
+- Avoiding the trap of disconnected short-term goals.
+
+#### 📋 Activity Reflection
+*Aspirations:*
+- Academic excellence  
+- Good job with high salary  
+- Family pride and personal happiness  
+
+*Concerns:*
+- Peer pressure  
+- Lack of confidence  
+- Time constraints  
+- Stage fear  
+- Lack of discipline  
+
+#### 🔍 The “Why?” Chain of Reflection
+Example:  
+1. What are you doing? → Studying hard  
+2. Why? → To become an engineer  
+3. Why? → To earn money and respect  
+4. Why? → To be happy and prosperous
+
+💡 *Realization:*  
+All our efforts are ultimately aimed at *lasting happiness and prosperity*.
+
+---
+
+### 🛠 Life Planning Approaches
+1. *Linear (1 → 2 → 3 → 4)* – Acting without deeper clarity of purpose.  
+2. *Reverse (4 → 3 → 2 → 1)* – Start with clarity of aspiration, then plan steps.  
+
+✅ *Reverse approach is more resilient* — setbacks won’t shake your purpose.
+
+---
+
+## 💡 Key Takeaways
+- Understand your *Basic Aspiration* clearly.  
+- Career and academics are *means, not the end goal*.  
+- If one path closes, choose another without losing sight of your purpose.  
+- Reflect on past disappointments to learn and grow.  
+- Life becomes easier when *you know your destination before you start walking*.
+
+---
+
+## 📝 Assignment
+- Reflect: Is *continuous happiness and prosperity* your true aspiration?  
+- Recall a moment when a desired path closed — how did you respond?  
+
+---
