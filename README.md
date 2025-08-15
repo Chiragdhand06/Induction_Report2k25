@@ -130,6 +130,23 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
 
 ---
 
+## ☕ Short Refresh & NCC Introduction  
+- Took a *30-minute refresh break* to recharge.  
+- Attended an *introductory session on NCC* – exploring its *structure, purpose, and benefits*.  
+- Learned *how to join* and the *discipline, leadership, and service opportunities* it offers.  
+
+---
+
+## 💻 Classroom Orientation – Information Technology  
+- Proceeded to our *classrooms* for a formal *IT course introduction*.  
+- *Faculty members* explained:  
+  - 📚 *Course structure* and upcoming subjects.  
+  - 🏫 *College facilities* and available resources.  
+  - 💬 Encouraged *interactive Q&A* to address all doubts.  
+- Got our *first real glimpse* of how our academic journey will unfold.
+
+---
+
 ## 🎯 Session Highlights:
 
 1. *Group Allocation System*
@@ -149,21 +166,6 @@ We began our academic journey with spiritual grounding at the campus Gurudwara, 
    | Dr. Rajesh Kumar   | AI/ML                   |
    | Dr. Priya Sharma   | Cybersecurity           | 
    | Prof. Amit Singh   | Cloud Computing         |
-
-## ☕ Short Refresh & NCC Introduction  
-- Took a *30-minute refresh break* to recharge.  
-- Attended an *introductory session on NCC* – exploring its *structure, purpose, and benefits*.  
-- Learned *how to join* and the *discipline, leadership, and service opportunities* it offers.  
-
----
-
-## 💻 Classroom Orientation – Information Technology  
-- Proceeded to our *classrooms* for a formal *IT course introduction*.  
-- *Faculty members* explained:  
-  - 📚 *Course structure* and upcoming subjects.  
-  - 🏫 *College facilities* and available resources.  
-  - 💬 Encouraged *interactive Q&A* to address all doubts.  
-- Got our *first real glimpse* of how our academic journey will unfold.  
 
 ---
 
