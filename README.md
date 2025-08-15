@@ -323,5 +323,60 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 - Recall a moment when a desired path closed — how did you respond?  
 
 #### 💡 This wasn’t just another day of lectures—it was a journey into the mind, heart, and soul, reminding us that true education is as much about values as it is about knowledge.
+
 ---
 
+# DAY 4 - 📅 4 August 2025 (Monday)  
+
+## 📚 English Lecture (Prof. Aastik Sharma)  
+- Started the day with an *interactive English class* full of energy and warmth.  
+- *Highlights:*  
+  - Prof. Aastik Sharma introduced the *course structure* and expectations.  
+  - Each student shared:  
+    - 💪 *Their Strengths*  
+    - 🌀 * Their Weaknesses*  
+    - 🎯 *Reason for choosing their stream*  
+  - Built an atmosphere of *openness and mutual respect*.  
+- Set a *positive tone* for the rest of the day.  
+
+---
+
+## ⚗ Chemistry Class (Prof. Karan Bhalla)  
+- First *Chemistry lecture* of the semester.  
+- Included:  
+  - *Student & teacher introductions*.  
+  - Brief on *college curriculum* and semester expectations.  
+  - Guidance on *study habits* for technical subjects.  
+- Provided a *solid foundation* for the academic journey ahead.  
+
+---
+
+## 🌍 Session on Universal Human Values  
+- Conducted by *Dr. Priya Darshni*.  
+- *Key takeaways:*  
+  - Thought-provoking discussions on ethics and responsibility.  
+  - Encouraged *self-reflection* on values important in both *college and personal life*.  
+  - Activities that helped students discover their *core principles*.  
+- Left everyone with a *renewed sense of purpose*.  
+
+---
+
+## 🚀 Causmic Club Interaction  
+- Interactive session with *Causmic Club* members.  
+- Covered:  
+  - Introduction to *co-curricular activities* at GNDEC.  
+  - Two seniors gave:  
+    - 💻 *Laptop selection tips* for our stream.  
+    - ⚡ Useful *tech advice* for academics.  
+  - Motivated students to *participate in clubs* and explore beyond academics.  
+- Sparked excitement for *college life outside classrooms*.  
+
+---
+
+## 🎵 Musical Conclusion  
+- Ended the day with a *soulful musical performance* by two seniors.  
+- Created a *warm, community feeling* and ended on a high note.  
+
+---
+
+#### 💡 A day that perfectly combined learning, values, practical tips, and artistic joy — proving that education is a holistic experience.
