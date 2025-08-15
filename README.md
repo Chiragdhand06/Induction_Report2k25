@@ -501,3 +501,70 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 #### 💡 The sessions reminded us that success in engineering is built on a balance of knowledge, creativity, innovation, and the courage to explore new ideas.  
 
 ---
+
+# 📅 DAY 7 - 7 August,2025 (Thursday)  
+
+## 🎤 Special Session in Auditorium  
+
+### 🏫 Address by Fr. Parminder Singh (Dean – Student Welfare)  
+- Delivered an *interactive and inspiring talk* about making the most of college life.  
+- *Key takeaways:*  
+  - NSS (National Service Scheme) – opportunities to serve society while building leadership skills.  
+  - Sneak peek into upcoming *cultural fests*, events, and talent showcases.  
+  - Introduction to vibrant student clubs that keep the campus lively and connected.  
+  - A guided tour (in words!) of campus facilities:  
+    - 🏊 Swimming pool.  
+    - 🏟 Sports clubs for every interest.  
+    - 🎭 Open-air theatre for performances and celebrations.  
+    - 🏠 Hostels with a lively student community.  
+    - 🍽 Multiple canteens for every craving.  
+    - 📚 Stationary shop for quick academic needs.  
+  - *Message:* College is not just where you study, it’s where you grow, explore, and create memories.  
+
+### 📱 Digital Marketing Club (DMC) – Dr. Amit Kamra  
+- Shared how the club *manages GNDEC’s social media presence* and creates engaging content.  
+- Announced *open recruitment for 1st-year students* to join the creative team.  
+- Showcased *student-made videos* – a glimpse of the talent and innovation within the club.  
+- Encouraged students to *embrace creativity and digital skills* as a powerful tool for the future.  
+
+### 📝 Examination Guidelines – Dr. Randhir Singh  
+- Broke down the *exam process* so there are no surprises later.  
+- Covered:  
+  - MST-1, MST-2, and Semester exam timelines.  
+  - Internal marks system and *how attendance impacts grades*.  
+  - Tips for staying updated via the college website.  
+- *Pro tip:* Staying consistent from day one pays off in the end.  
+
+---
+
+## ☕ Break Time  
+- Enjoyed a *1-hour pause* after the auditorium sessions.  
+- Time to relax, recharge, and chat with friends before diving back into academics.  
+
+---
+
+## 📚 Regular Lectures  
+
+### ⚗ Chemistry Class  
+- Began *Chapter 1: Water Chemistry*.  
+- Explored:  
+  - The role of water in *chemical reactions*.  
+  - Basic properties and how they connect to everyday applications.  
+- Left students curious about the *hidden science* in something as simple as water.  
+
+### ➗ Mathematics Class  
+- Quick but impactful session on *Derivatives and Integration*.  
+- Connected abstract concepts to *real-world engineering problems*.  
+- Emphasized how math is the *language of technology and innovation*.  
+
+---
+
+## 📊 Summary & Reflection  
+- *Day 7* gave a *360° experience* — from discovering opportunities in campus life to strengthening academic skills.  
+- Learned how *clubs, facilities, and events* shape a vibrant college experience.  
+- Gained practical knowledge about *exams, attendance, and academic expectations*.  
+- The day ended with the reminder that *success in college is a mix of active participation, consistent learning, and seizing every opportunity*.  
+
+---
+
+#### 💡 Some days give you knowledge, some give you inspiration — this one gave us both.
