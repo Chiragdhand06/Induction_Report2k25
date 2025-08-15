@@ -506,7 +506,7 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 
 ## 🎤 Special Session in Auditorium  
 
-### 🏫 Address by Fr. Parminder Singh (Dean – Student Welfare)  
+### 🏫 Address by Er. Parminder Singh (Dean – Student Welfare)  
 - Delivered an *interactive and inspiring talk* about making the most of college life.  
 - *Key takeaways:*  
   - NSS (National Service Scheme) – opportunities to serve society while building leadership skills.  
