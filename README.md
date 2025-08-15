@@ -237,6 +237,12 @@ https://i.postimg.cc/26DZ8qmM/IMG-20250809-173222.jpg)
 ## 📅 Date & Time
 *Saturday* – 9:00 AM onwards
 
+## 🌅 A Spiritual Start  
+- Began the day with the *recitation of the Mool Mantar*, setting a peaceful and focused tone.  
+- Created an atmosphere of *calmness and mindfulness* before diving into the sessions ahead.  
+
+---
+
 ## 📝 Activities & Sessions
 
 ### ⿡ Lecture 1: Learning Science & Math Experimentally  
@@ -251,8 +257,11 @@ https://i.postimg.cc/26DZ8qmM/IMG-20250809-173222.jpg)
 
 #### 📌 Session Highlights
 - Demonstrated how *science and mathematics* can be learned through engaging experiments.
+- A *highly interactive* and *thought-provoking* lecture blending science, logic, and spirituality.  
 - Emphasized *discipline and curiosity* as key drivers of true learning.
 - Shared personal stories that inspired students to connect academic knowledge with real-life applications.
+- Encouraged students to question, explore, and connect ideas.  
+- 🌟 One of the most memorable and impactful sessions of the programme so far!  
 - Left the audience thinking:  
   > "When learning becomes an experience, it never leaves you."
 
@@ -311,5 +320,6 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 - Reflect: Is *continuous happiness and prosperity* your true aspiration?  
 - Recall a moment when a desired path closed — how did you respond?  
 
+### 💡 This wasn’t just another day of lectures—it was a journey into the mind, heart, and soul, reminding us that true education is as much about values as it is about knowledge.
 ---
 
