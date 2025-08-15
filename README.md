@@ -435,3 +435,69 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 
 ---
 
+# 📅 DAY 6 - 6 August,2025 (Wednesday)  
+
+## ➗ Mathematics Lecture & Learning Tools  
+- Began the day with an *engaging Mathematics lecture* by *Prof. Sukhminder Singh* in the ME Seminar Hall.  
+- *Highlights:*  
+  - Overview of the *syllabus* and upcoming topics.  
+  - Focus on *2D & 3D applications* in mathematics and their *practical use in engineering*.  
+  - Demonstrated *graph plotting* for better visualization.  
+  - Introduced *two educational apps* from the Play Store to make learning *interactive and fun*.  
+- Skipped formal introductions — much to the relief of many students!  
+
+---
+
+## ⚡ Basic Electrical and Electronics Engineering (BEEE)  
+- Lecture by *Prof. Simranjeet Kaur* from the ECE department.  
+- *Key topics:*  
+  - Basic *electrical circuits* and their components.  
+  - Real-world applications of electrical principles.  
+  - Preparing students for *hands-on lab sessions*.  
+
+---
+
+## 💻 C++ Coding Session with a Senior  
+- Conducted by a *senior student* to build on earlier programming lessons.  
+- *Covered:*  
+  - Review of *basic C++ concepts*.  
+  - Step-by-step coding demonstrations.  
+  - Tips for writing *clean and efficient code*.  
+- Highly *interactive* and *relatable* session that boosted programming confidence.  
+
+---
+
+## ☕ Midday Break  
+- A *1.5-hour break* to relax, recharge, and grab food before the second half of the day’s sessions.  
+
+---
+
+## 🎤 Inspirational Auditorium Sessions  
+
+### 🏛 Address by S. Gurcharan Singh Grewal  
+- *Trustee of GNDEC* and a long-standing contributor to the institution.  
+- Shared his *personal connection with the college* and vision for student growth.  
+
+### 🚀 Expert Session by Dr. Arvind Dhingra  
+- *Director of STEP & Incharge of TAC*.  
+- Emphasized the importance of *innovation and entrepreneurship* in technical education.  
+
+### 🔬 STEM Talk by Mr. Jasvir Singh Sekhon  
+- *District Resource Person for STEM*.  
+- Encouraged students to explore *Science, Technology, Engineering, and Mathematics* with a *practical, problem-solving mindset*
+
+### 🎯 Introduction to the Centre for Multifaceted Learning (CML) by Dr. Lakhvir Singh Khanna  
+- Explained the *purpose, structure, and enrollment process* of CML.  
+- Highlighted opportunities for students to *enhance their skills* through diverse learning modules and resources.  
+
+---
+
+## 📊 Summary & Reflection  
+- *Day 6* offered a *perfect mix* of academic learning, skill-building, and motivational guidance.  
+- From mastering concepts in *math, coding, and electronics* to being inspired by *expert talks, the day reinforced the importance of **both technical knowledge and personal growth*.  
+
+---
+
+#### 💡 The sessions reminded us that success in engineering is built on a balance of knowledge, creativity, innovation, and the courage to explore new ideas.  
+
+---
