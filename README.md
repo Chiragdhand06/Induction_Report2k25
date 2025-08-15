@@ -322,6 +322,6 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 - Reflect: Is *continuous happiness and prosperity* your true aspiration?  
 - Recall a moment when a desired path closed — how did you respond?  
 
-### 💡 This wasn’t just another day of lectures—it was a journey into the mind, heart, and soul, reminding us that true education is as much about values as it is about knowledge.
+#### 💡 This wasn’t just another day of lectures—it was a journey into the mind, heart, and soul, reminding us that true education is as much about values as it is about knowledge.
 ---
 
