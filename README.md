@@ -326,7 +326,7 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 
 ---
 
-# DAY 4 - 📅 4 August 2025 (Monday)  
+# 📅DAY 4 - 4 August 2025 (Monday)  
 
 ## 📚 English Lecture (Prof. Aastik Sharma)  
 - Started the day with an *interactive English class* full of energy and warmth.  
@@ -380,3 +380,55 @@ All our efforts are ultimately aimed at *lasting happiness and prosperity*.
 ---
 
 #### 💡 A day that perfectly combined learning, values, practical tips, and artistic joy — proving that education is a holistic experience.
+
+---
+
+# 📅 DAY 5 - 5 August 2025 (Tuesday)  
+
+## 💻 C++ Coding Session by Seniors  
+- The day began with an *interactive C++ coding class* conducted by two experienced seniors.  
+- *Highlights:*  
+  - Simple program demonstrations to make coding feel approachable.  
+  - Introduction to *fundamentals*:  
+    - 📝 Data types & variables  
+    - 📥 Input/Output syntax  
+    - 🏗 Structure of a simple program  
+  - Encouraged students new to programming to see coding as *fun and accessible*.  
+- Built a *strong foundation* for future programming skills.  
+
+---
+
+## ⚡ Basic Electrical and Electronics Engineering (BEEE) by Prof. Simranjeet Kaur  
+- Conducted by *Prof. Simranjeet Kaur* from the ECE department.  
+- Started with *student introductions* to create a friendly learning atmosphere.  
+- *Key topics covered:*  
+  - 📚 Overview of the syllabus  
+  - 🔌 Basics of electric circuits  
+  - 📏 Resistors and their functions  
+  - ⚙ Fundamental electronics concepts every engineer must know  
+- Linked theoretical concepts with *real-world engineering applications*.  
+
+---
+
+## 🔭 Physics Class & Lab Overview 
+- A session focused on *understanding Physics in both theory and practice*.  
+- *Covered:*  
+  - 📖 Subject structure and how it integrates into engineering studies.  
+  - 🧪 Introduction to practical experiments such as:  
+    - Verifying laws of motion  
+    - Working with lenses  
+    - Exploring wave behavior  
+- Inspired curiosity for *hands-on scientific exploration*.  
+
+---
+
+## 📊 Summary & Reflection  
+- *Day 5* blended *technical skills* with *core engineering knowledge*, providing:  
+  - 🖥 A strong start in programming.  
+  - ⚡ A grasp of essential electrical concepts.  
+  - 🔭 An insight into scientific experiments.  
+- The day reinforced the idea that engineering is *not just about theory, but also about **practical application and problem-solving*.  
+
+---
+
+#### 💡 From writing our first lines of code to understanding circuits and exploring the laws of nature, this day reminded us that curiosity is the fuel for innovation.
